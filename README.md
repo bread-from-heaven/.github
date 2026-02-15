@@ -1,1 +1,3 @@
-# .github
+# *Bread from Heaven | Manna in the Wilderness | Powerful Bible Story*
+## *What happens when people are hungry, afraid, and stuck in the middle of a desert? In this powerful Bible story, discover how God provided Bread from Heaven, known as manna, to the Israelites during their journey through the wilderness.  Told in a clear and engaging way, this story reveals timeless lessons about faith, trust, obedience, and daily dependence on God. Even if you’re new to Bible stories, this narration makes the message easy to understand and deeply meaningful. Watch till the end to uncover why this miracle wasn’t just about food—but about learning to trust God one day at a time.* [More details…](https://spiritualkhazaana.com/web-stories/bread-from-heaven/)
+## #breadfromheaven #mannainthewilderness #biblestories #biblestoryforbeginners #oldtestamentstories #exodusbiblestory #godprovidesmanna #faithandtrustbiblestory #biblicalmiracles
